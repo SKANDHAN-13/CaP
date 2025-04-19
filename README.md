@@ -1,0 +1,1 @@
+Electronics Club application tasks
